@@ -27,7 +27,6 @@ Micheal Jackson - Billie Jean
 Mein Name in st Hase und ....
 
 Eine neue Zeile von Maike.
-yoyo
 Mein Name ist Hase und ....
 
 Eine neue Zeile von Maike.
