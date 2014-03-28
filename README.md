@@ -1,7 +1,7 @@
 zentralesrepo
 =============
 
-na mergen hat ja super geplappt.... 
+na mergen hat ja super geklappt.... 
 
 Hier dran arbeiten wir gemeinsam oder nicht?
 =======
