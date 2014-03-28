@@ -17,7 +17,7 @@ yoyo
 WuuuHuuu!
 =======
 
-Biz nereye?
+Biz nereye? <<== Sarki sözü mü bu?
 ===========
 
 Mein Name in st Hase und ....
