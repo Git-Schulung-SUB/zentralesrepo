@@ -6,7 +6,7 @@ zentralesrepo
 daas mergen hat ja super geklappt.... 
 Sibylle schreibt auch was, und wundert sich: bin ich jetzt ich?
 
-Hier dran arbeiten wir gemeinsam oder nicht?
+Hier dran arbeiten wir gemeinsam!
 =======
 Hier dran arbeiten wir gemeinsam
 
@@ -16,7 +16,7 @@ Joelles Zeile in der Datei
 yoyo
 =======
 
-WuuuHuuu!
+WuuuHuuu7!
 =======
 
 Biz nereye?
