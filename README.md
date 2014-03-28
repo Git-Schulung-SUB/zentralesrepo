@@ -18,6 +18,8 @@ WuuuHuuu!
 
 Biz nereye? <<== Sarki sözü mü bu?
 ===========
+Tarkan - Biz Nereye? Cok eski :)
+================================
 
 Micheal Jackson - Billie Jean
 =============================
