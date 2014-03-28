@@ -1,3 +1,5 @@
+ikje chai
+
 zentralesrepo
 =============
 
@@ -5,7 +7,6 @@ daas mergen hat ja super geklappt....
 Sibylle schreibt auch was, und wundert sich: bin ich jetzt ich? - JOU!
 
 Hier dran arbeiten wir gemeinsam oder nicht?
-=======
 Hier dran arbeiten wir gemeinsam
 
 
@@ -15,15 +16,16 @@ yoyo und wieder sooo
 =======
 
 WuuuHuuu!
-=======
 
-Biz nereye?
+Biz nereye? <<== Sarki sözü mü bu?
 ===========
+
+Micheal Jackson - Billie Jean
+=============================
 
 Mein Name in st Hase und ....
 
 Eine neue Zeile von Maike.
-=======
 yoyo
 Mein Name ist Hase und ....
 
@@ -32,13 +34,23 @@ Eine neue Zeile von Maike.
 Sagt hwh
 und Elmar
 
-=======
 Guenther!!!
 
 
-=======
 Lecker Minzpastillen
 ====================
 
 Brunch ...
 
+
+
+
+
+
+
+
+
+
+
+
+HUHUHUHUHUHUHUHUHUHUHUHUHUHUHUHUHUHUHUHUHU!
