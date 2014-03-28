@@ -16,7 +16,7 @@ yoyo
 
 WuuuHuuu!
 
-Biz nereye?
+Biz nereye? <<== Sarki sözü mü bu?
 ===========
 
 Micheal Jackson - Billie Jean
