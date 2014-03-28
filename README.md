@@ -11,7 +11,7 @@ Hier dran arbeiten wir gemeinsam
 
 Joelles Zeile in der Datei
 
-yoyosooo
+yoyo
 =======
 
 WuuuHuuu!
