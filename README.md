@@ -4,7 +4,7 @@ zENTralEsRepo
 immer mal was neues in README
 
 daas mergen hat ja super geklappt.... 
-Sibylle schreibt auch was, und wundert sich: bin ich jetzt ich?
+Sibylle schreibt auch was, und wundert sich: bin ich jetzt ich? - JOU!
 
 Hier dran arbeiten wir gemeinsam oder nicht?
 Hier dran arbeiten wir gemeinsam
@@ -12,7 +12,8 @@ Hier dran arbeiten wir gemeinsam
 
 Joelles Zeile in der Datei
 
-yoyo
+yoyo und wieder sooo
+=======
 
 WuuuHuuu!
 
